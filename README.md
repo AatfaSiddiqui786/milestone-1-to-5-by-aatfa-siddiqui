@@ -1,1 +1,1 @@
-# milestone-1-to-5-by-aatfa-siddiqui
+# milestones-1-to-5-by-aatfa-siddiqui
